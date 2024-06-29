@@ -1,6 +1,6 @@
 # NewsHubRss Privacy Policy
 
-_Last updated: [Date]_
+_Last updated: 29 June 2024_
 
 ## Introduction
 
